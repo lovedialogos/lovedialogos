@@ -4,7 +4,7 @@ Licensed marriage and family therapist and owner of [Love Psychotherapy, LLC](ht
 
 Most of Love's work is with adults who were misdiagnosed for years and are identifying as autistic or ADHD later in life. Love also works with couples, teaching them to argue well, and with gender socialization in people of all genders. The clinical approach draws on Buddhist psychology and nonviolent communication, framed around informed consent, along with a systems framing Love calls relational dynamics: habit energy, automatic patterns, and how they move through relationships.
 
-Love is an AAMFT Approved Supervisor and Clinical Fellow, an adjunct professor, and a speaker for other therapists. Clinical supervision is offered through [queermftsupervision.com](https://queermftsupervision.com/).
+Love is an AAMFT Approved Supervisor and Clinical Fellow and a board-approved supervisor in Florida, Ohio and Texas. Love is also an adjunct professor and a speaker for other therapists. Clinical supervision is offered through [queermftsupervision.com](https://queermftsupervision.com/).
 
 ## Writing
 
