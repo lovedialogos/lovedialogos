@@ -17,6 +17,7 @@ Love is an AAMFT Approved Supervisor and Clinical Fellow, an adjunct professor, 
 - Practice: [lovepsychotherapy.com](https://lovepsychotherapy.com/)
 - Profile page: [lovedialogos.github.io](https://lovedialogos.github.io/)
 - [LinkedIn](https://www.linkedin.com/in/mx-love-c-dialogos-lmft-192982393)
+- [Forbes Business Council](https://councils.forbes.com/profile/Love-Dialogos-Owner-Founder-Love-Psychotherapy-LLC/4b8fff38-8281-412c-9783-0087e6d22f4a)
 - [Psychology Today](https://www.psychologytoday.com/us/therapists/love-c-dialogos-chicago-il/939614)
 - [Healthgrades](https://www.healthgrades.com/providers/love-dialogos-gflpxs7899)
 - [TherapyDen](https://www.therapyden.com/therapist/love-dialogos-madison-wi)
